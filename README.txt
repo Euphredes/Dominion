@@ -29,10 +29,10 @@ Location: Cherry Hill, NJ.
            Contents 
 
 Introduction 
-Walden 
-Hudson 
-Delaware 
-Chesapeake 
+Walked 
+Spoken 
+Written 
+Felt 
 
            Introduction 
            ------------ 
