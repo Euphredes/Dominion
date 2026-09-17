@@ -1,7 +1,14 @@
 
 
-           WALDEN 
-           FIRST QUARTERS 
+           DOMINION 
+           A FOUNDATION 
+
+
+           EUPHREDES 
+           AN ALEXANDRIAN SERVANT 
+
+
+           A BOOK FOR PHAEDRAH 
 
 
            Publishing 
@@ -11,91 +18,46 @@ Licensing: Content in this text file
            Commons Attribution 4.0 
            International license. 
 Author: Nick Morris. 
-Release: Saturday, September 12th 2026. 
-Location: Philadelphia, PA. 
+Age: 33 Years Old. 
+Release: Thursday, September 17th 2026. 
+Location: Cherry Hill, NJ. 
 
-           ------ 
-           Walden 
-           ------ 
-
-           Claimer 
-
-A thought happens when .it. wants to, 
-not when I want it. The closest 
-experience I'm abused by daily, 
-thoughts, are a stranger. I do not 
-know the who of my thinking. This 
-strikes fear into my authenticity. 
-I'll use silence, chanting, or humming 
-to cope: to overload my mind until some 
-reaction within me, that is strong 
-enough, breaks thorugh my self-imposed 
-monotony. That reaction is a choice 
-for me to make or not. I feel like a 
-gambler with a stranger, who I've 
-been closest to, gambling over my 
-life and death. This monster is the 
-famous, owld .it. 
-
-When a person dies, all that one goes 
-to the grave with is just one's own 
-stories: that is the person's bounty. 
+           -------- 
+           Dominion 
+           -------- 
 
            Contents 
 
 Introduction 
-Candles 
-Walks 
-Sites 
-Triangle 
+Walden 
+Hudson 
+Delaware 
+Chesapeake 
 
            Introduction 
            ------------ 
 
-           Review 
+           Letter 
 
-What is it? 
-Who is it for? 
-Where has it been? 
-Where is it going? 
-How is it done in two parts? 
+Dear Phaedrah, From Nick, 
 
-           Storyline 
+You don't make me feel some type of 
+way. You make me feel some demand to 
+stay. Social pressure tells me: we're 
+not allowed: our friendship would be 
+a lifelong embarrassment against you. 
+That social pressure, robbing me of 
+the euphoria of your presence. That 
+makes me feel some type of way: motion. 
 
-Opponent 
- Maslow's Pyramid 
-Game 
- Heist 
-Monster 
- Penal Colony 
-Outward 
- Physical Adventure 
-Inward 
- Obstacle Course 
+Demolition creates space. 
+Love creates fuel. 
 
-           Approach 
-
-Problem 
- Slitherlink Knapsack 
-Sets 
- Destinations 
- Traps 
- Items 
- Storages 
-Solver 
- Greedy 
-
-           Responsibilities 
-
-Mentally 
- Silence 
-Physically 
- Momentum 
-Spiritually 
- Focus 
-
-           * * * 
-
+When I can't do caregiving by your 
+side, well, I'll lay the groundwork for 
+cult activity. That is this book: after 
+Phaedrah, Nick stole space and time to 
+establish areas for Phaedrah. 
 
            ***** 
             *** 
